@@ -1,8 +1,8 @@
-## <img src="https://github.com/tainakaina/tainakaina/blob/main/ezgif.com-gif-maker.gif" style="width: 30px; border-radius: 5px;"> ina's Github Profile🌃☕
+## <img src="https://github.com/naitaalacarte/naitaalacarte/blob/main/ezgif.com-gif-maker.gif" style="width: 30px; border-radius: 5px;"> My Github Profile🌃☕
 <img src="https://moe-counter.glitch.me/get/@inagithubprofile?theme=rule34"> <br>
 “She told me that she loved me by the water fountain, she told me that she loved me and she didn’t love him.” <br> – ***Alec Benjamin***
 
-#### Professional K-On! fan and often an amateur programmer <img src="https://github.com/tainakaina/tainakaina/blob/main/727653965050937374.png" style="width: 25px;">
+#### Professional K-On! fan and often an amateur programmer <img src="https://github.com/naitaalacarte/naitaalacarte/blob/main/727653965050937374.png" style="width: 25px;">
 ### Setup: 
 CPU: I7-10700f 
 RAM: 32gb 8x4
